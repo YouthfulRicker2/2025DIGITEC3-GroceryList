@@ -1,0 +1,1 @@
+# 2025DIGITEC3-GroceryList
